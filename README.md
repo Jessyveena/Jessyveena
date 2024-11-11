@@ -21,6 +21,6 @@ I am fueled by the desire to create innovative solutions that positively impact 
 
 ### 📫 Let's Connect!
 - LinkedIn: https://www.linkedin.com/in/veena-ak
-- 📧 Email: veenaakumalla@gmail.com (Feel free to reach out!)
+- 📧 Email: a.veena5555@gmail.com (Feel free to reach out!)
 
 Looking forward to exciting opportunities and meaningful collaborations! ✨
